@@ -1,4 +1,3 @@
-# WorkBuddy-5000-Credits-New-User-Invitation-Rewards
 # 🎉 WorkBuddy 新用户福利：邀请注册领 5000 积分！
 
 WorkBuddy 新用户专属福利来啦！
